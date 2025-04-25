@@ -1,1 +1,1 @@
-this course is great
+this course is great. More is less.
